@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[My SB profile](https://forums.spacebattles.com/members/pyrrhicsteel.286623/)
